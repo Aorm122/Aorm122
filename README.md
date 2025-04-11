@@ -3,7 +3,7 @@ I am Arom Sylon Apostle Foronda F. Alcausin
 
 I'm currently a computer science student in Mariano Marcos State University and I am very much inexperienced.
 
-I like all things videogames, so I hope I'll get the knowledge on how to make them someday. I also like watching things like anime, movies and reading manga.
+I like all things videogames, so I hope I'll get the knowledge on how to make them someday. I like consuming media too 🥶. I'm a media consumer.
 <!--
 **Aorm122/Aorm122** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
